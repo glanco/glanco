@@ -1,0 +1,6 @@
+- 👋🏾 Hi, I’m @glanco
+- 👀 I’m interested in learning to code and much more about the technology.
+- 🌱 I’m currently learning how to code...lol
+- 💞️ I have no idea what collaborations are or what they're needed for.
+- 📫 Don't reach me. XD
+- 🪐 I may or not be from a another planet... 
